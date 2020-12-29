@@ -1,0 +1,1 @@
+First, peel a banana and place it into a blender. Then, pour about 1/2 cup of milk. Wash some strawberries and cut the stems off of them and add them. Finally, add 1/2 spoon of honey with ice cream in addition if you choose to do so. Then blend together and pour into a cup. 

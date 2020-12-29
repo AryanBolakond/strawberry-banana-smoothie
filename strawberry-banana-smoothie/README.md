@@ -1,0 +1,1 @@
+This recipe is for a smoothie that combines the fruits of banana and strawberry along with some additional ingredients to create a soothing feeling especially when it is hot outside and you need something to cool down.
